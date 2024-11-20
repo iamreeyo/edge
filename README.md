@@ -1,1 +1,1 @@
-# EDGE Creative
+# CreativEdge™
